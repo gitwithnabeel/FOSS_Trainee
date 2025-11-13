@@ -1,2 +1,4 @@
 # FOSS_Trainee
-Hello devio aur sajjano!
+Hello to whoever's reading this, I'm Nabeel Khan and I'm a first year Btech Student at IIITA.
+"Regrets Show the value of better choices".  
+
